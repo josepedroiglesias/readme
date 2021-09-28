@@ -3,4 +3,4 @@
 
 ### Currently focused on the React.js 🌎
 
-linkedin.com/in/josepedroiglesias
+🚀 <a href="https://www.linkedin.com/in/josepedroiglesias">LinkedIn</a>
